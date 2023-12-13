@@ -1,2 +1,0 @@
-# estudiando
-super holaaaaaaaaaaaaa
